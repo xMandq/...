@@ -1,0 +1,3 @@
+bro thought he found top secretes 😭😭
+
+also yes, i cant even read my own code to edit the database thats how hard it is to crack the script...
